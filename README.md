@@ -32,6 +32,7 @@ Hopes for these stories:
 - [ ] Kids fighting over toys - sibling rivalries
 - [ ] Religions
 - [ ] The Egg
+- [ ] [The cobra effect](https://en.wikipedia.org/wiki/Perverse_incentive#The_original_cobra_effect)
 - [ ] Blind Men & The Elephant
 - [ ] Bucky fuller world game
 - [ ] [nicky case’s web game on Trust](https://ncase.me/trust/)
