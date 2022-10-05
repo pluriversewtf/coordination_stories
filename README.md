@@ -34,8 +34,11 @@ Hopes for these stories:
 
 # Remedies to moloch
 - Communication
-- designing better Schelling points
 - Gratitude
 - Ego death
+- designing better Schelling points
 - Game-warping with smart contracts
-- Deposit burns / conditional payouts
+  - Dominance Assurance Contracts
+  - Quadratic Funding
+  - Retroactive public goods funding
+  - Deposit burns / conditional payouts
