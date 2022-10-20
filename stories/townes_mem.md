@@ -1,0 +1,7 @@
+# Townes Van Zandt's Memories
+
+Few people can match the pure songwriting talent of Townes Van Zandt. He falls into a category of American songwriting tradition that is occupied by the likes of Woody Guthrie, Johnny Cash and a few others. Songwriters that were able to witness and explain the American experience to their audience using emotion as the tie that binds. With Townes, it was always a little more real. The sadness came from deep inside of him. The songs seem to come from a place of a profoundly wise person. Here’s the thing, there was no “experiences" that led to this wisdom. Not in the way that his songwriting contemporaries felt.  Not in the way most people feel. Townes had no childhood memories to draw from. That was taken from him.
+
+When Townes was coming of age, he was diagnosed as bipolar and manic depressive. To treat his mental illness his mother had agreed to insulin shock therapy. This involved daily overdoses of insulin causing violent physical reactions that put patients into a daily coma. The idea being that people are "shocked" out of their mental illness. It erased Townes' childhood memory. 
+
+Today that treatment seems ridiculous and in fact  was cruel and made things worse. With Townes' it certainly did. The pain he felt was only subdued by alcohol and drug abuse. He died a broken man. As did others that under went that treatment. We may see that treatment as cruelty and punishment, at the time, they thought they were helping. That friends, is Moloch's work.
