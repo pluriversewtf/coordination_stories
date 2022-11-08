@@ -6,4 +6,4 @@ Long term, hunger can negatively effect human beings to their utmost limits. Whe
 
 For growing nations, that is a drain on improvement with effects that can consequently last for generations. Hunger impairs a person’s capacity to be a part of an effective personnel, and make contributions to a financial boom. In the current time period, meal shortages and growing food costs can widen inequality, and result in warfare and instability.
 
-Feeding the sector with sufficient, nutritious meals is already a massive project currently. The challenge is set to heighten within the future. As the population grows, climate variability will influence food production, and the herbal resources that help feed the world are stretched more in addition.
+Feeding the sector with sufficient, nutritious meals is already a massive project currently. The challenge is set to heighten within the future. As the population grows, climate variability will influence food production, and the agricultural resources that help feed the world are stretched more in addition.
