@@ -10,4 +10,4 @@ I have read a fair few stories and heard some excellent talks on the coordinatio
 
 Author's note: My mother died on the 4th of April, 2021. This is my personal story. I hope I was able to effectively communicate what these experiences taught me. My best wishes to the reader the best in their fight with Moloch!
 
-Licence: I have agreed to liscense this content to the pluriverse.wtf community.
+Licence: I have agreed to license this content to the pluriverse.wtf community.
